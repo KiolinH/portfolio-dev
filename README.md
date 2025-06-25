@@ -12,6 +12,6 @@
 
 [linkedin]: https://linkedin.com/in/kiolinharisanker/
 [instagram]: https://www.instagram.com/xxthe_soldierxx/
-[tiktok]: https://www.instagram.com/@kiolinharisanker/
+[tiktok]: https://www.tiktok.com/@kiolinharisanker/
 
 
